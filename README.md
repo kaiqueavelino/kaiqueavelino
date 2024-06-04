@@ -1,16 +1,16 @@
 ### boas vindas ao meu perfil 💙
 
-<!--
-**kaiqueavelino/kaiqueavelino** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- MEU NOME É KAIQUE 💖💖💖💖💖💖💖
+- ESTOU ESTUDANDO NO ALURA 😎😎😎😎😎
+- ESTOU ME DESEVOLVENDO NA LINGUAGEM JAVASCRIPT😉✔✔✔✔✔✔✔✔
+- UTILIZO ESSE ESPAÇO PARA MINHA ORGANIZAÇAO E COMPARTILHAMENTO DOS MEUS PROJETOS DESENVOLVIDOS😜😜😜😜😜😜😜😜😜
 
-Here are some ideas to get you started:
+### Voce pode entrar em contato comigo 📞📞📞📞📱📱📱
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Avelinokaique1@gmail.com
+
+
+
+
+
+   ![](https://tenor.com/pt-BR/view/chicharito-free-fire-chicharito-free-fire-nft-meme-gif-26009930)
